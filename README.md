@@ -1,7 +1,7 @@
 # Kaipo Times Vol. #1, 
 # Understanding Why Tourism Is Used As An Excuse For The Invasion
 Published Wednesday April 15th, 1998. 
-Author: Kalani Kaipo-Cabral
+Author: Kalani Kaipo
 
 # First of all, why is tourism such a big monopoly in Hawaii?
 Tourism was started around the late 1800's to early 1900's when hawaii attracted the wealthy to visit an exotic and tropical area that they had 
@@ -12,7 +12,7 @@ hawaii as a luxury location and today thousands of people visit the islands ever
 Tourism is infamous among residents like me for causing many problems in our lives such as creating traffic with tourists trying to drive in towns, inflating the economy to where housing is unaffordable for many residents, causing much more trash to end up on our roads and oceans, and the general focus on them opposed to the actual people who live on the islands. Our lives have been dictated on sastifying other people rather than focusing on our needs like affordable housing and reservations for native hawaiians. The blantant ignorance towards residents shows how little the government cares about us and the focus that is brought upon tourists that contribute to shareholders making more money. 
 
 # COUNTERPOINT: What are the positive effects of tourism?
-Tourism has greatly strengthened the US's economy as many foreigners travel to the islands to experience a tropical and exotic location like no other, and despite extremely expensive prices in hawaii business owners experience great profits and get to drown in wealth as the common people suffer. 
+Tourism has greatly strengthened the US's economy as many foreigners travel to the islands to experience a tropical and exotic location like no other, and despite extremely expensive prices in hawaii business owners experience great profits and get to drown in wealth as the common people suffer. Many businesses have thrived for long off tourism, including locally owned ones such as food and gift shops, but this is a minority compared to the many big name brands that have established their dominance over the hawaiian economy and provide tourists many things to buy so they can fill their wallets. 
 
 # MEDIA AND LINKS
 
