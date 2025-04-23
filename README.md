@@ -5,10 +5,12 @@ Our question is was tourism enough to justify the hawaii
 
 
 
-
+# Download the free official flier!!!
+https://www.mediafire.com/view/t97oi3p2ai2sahw/Hawaii.png/file# 
 # What is Kaipo Times?
 Kaipo times is a locally made website founded in 1997 to post informational blogs 
 
 # Where do we contact you?
 @Kalanicabral550@gmail.com
 Phone Number: +1 (808) 636-6657
+
