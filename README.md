@@ -1,5 +1,6 @@
 # Kaipo Times Vol. #1, Understanding Why Tourism Is Used As An Excuse For The Invasion
-Our question is was tourism enough to justify the hawaii
+Published Wednesday April 15th, 1998. 
+Author: Kalani Kaipo-Cabral
 
 # First of all, why is tourism such a big monopoly in Hawaii?
 Tourism was started around the late 1800's to early 1900's when hawaii attracted the wealthy to visit an exotic and tropical area that they had 
