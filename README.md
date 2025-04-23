@@ -1,4 +1,5 @@
-# Kaipo Times Vol. #1, Understanding Why Tourism Is Used As An Excuse For The Invasion
+# Kaipo Times Vol. #1, 
+# Understanding Why Tourism Is Used As An Excuse For The Invasion
 Published Wednesday April 15th, 1998. 
 Author: Kalani Kaipo-Cabral
 
@@ -8,7 +9,7 @@ never seend before. Eventually as flights and sailing trips became much cheaper 
 hawaii as a luxury location and today thousands of people visit the islands every day, clogging up the roads and driving up prices for citizens.
 
 # What are the negative effects of tourism?
-
+Tourism is infamous among residents like me for causing many problems in our lives such as creating traffic with tourists trying to drive in towns, inflating the economy to where housing is unaffordable for many residents, causing much more trash to end up on our roads and oceans, and the general focus on them opposed to the actual people who live on the islands. Our lives have been dictated on sastifying other people rather than focusing on our needs like affordable housing and reservations for native hawaiians. The blantant ignorance towards residents shows how little the government cares about us and the focus that is brought upon tourists that contribute to shareholders making more money. 
 
 
 
