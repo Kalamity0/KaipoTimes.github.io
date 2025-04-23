@@ -1,5 +1,14 @@
-# Kaipo Times Vol. #1, Understanding Tuitions That Were Used To Supress Hawaiians From Revolting 
-Were the tuitions granted to Hawaiian students enough to compensate for the invasion? Why or why not?
+# Kaipo Times Vol. #1, Understanding Why Tourism Is Used As An Excuse For The Invasion
+Our question is was tourism enough to justify the hawaii
 
-# First of all, why were tuitions even granted in the first place?
-Tuitions were used to encourage hawaiians to go to college for more job opportunities after the invasion and the US annexationn of hawaii
+# First of all, why is tourism such a big monopoly in Hawaii?
+
+
+
+
+# What is Kaipo Times?
+Kaipo times is a locally made website founded in 1997 to post informational blogs 
+
+# Where do we contact you?
+@Kalanicabral550@gmail.com
+Phone Number: +1 (808) 636-6657
