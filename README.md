@@ -10,10 +10,25 @@ hawaii as a luxury location and today thousands of people visit the islands ever
 # What are the negative effects of tourism?
 
 
+
+
+# MEDIA AND LINKS
+
+
 # Download the free official flier
 https://www.mediafire.com/view/t97oi3p2ai2sahw/Hawaii.png/file# 
+
+# Sources
+  https://en.wikipedia.org/wiki/Tourism_in_Hawaii
+  https://www.history.com/articles/hawaii
+  https://www.nea.org/nea-today/all-news-articles/us-occupation-hawaiian-kingdom
+  https://hawaiiankingdom.org/us-occupation.shtml
+
+# HOME AND IMPORTANT INFORMATION
+
+
 # What is Kaipo Times?
-Kaipo times is a locally made website founded in 1997 to post informational blogs 
+Kaipo times is a locally made website founded in 1997 to post informational papers about the state of Hawaii and current and past events that have happened there. Made by a young college student named Kalani Kaipo who attends University of Hawaii at West Oahu, this website aims to educate people of all ages on events in Hawaii locally and worldwide
 
 
 # Where do we contact you?
