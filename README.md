@@ -26,6 +26,9 @@ While tourism can be a great economic booster when used in moderation, hawaii ha
 
 # MEDIA AND LINKS
 
+# Respond to our poll so we can gather more information
+https://docs.google.com/forms/d/1M10XO4biuuNbtXrdSu8Zd3254IcbLfWjg9ycCEjb62A/edit
+
 # Download the free official flier
 https://www.mediafire.com/view/t97oi3p2ai2sahw/Hawaii.png/file# 
 
@@ -58,6 +61,4 @@ This website was made to digitally showcase Kaipo time's official writing for a 
 
 Phone Number: +1 (808) 636-6657
 
-# Respond to our poll so we can gather more information
-https://docs.google.com/forms/d/1M10XO4biuuNbtXrdSu8Zd3254IcbLfWjg9ycCEjb62A/edit
 
