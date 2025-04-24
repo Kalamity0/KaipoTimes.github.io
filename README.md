@@ -39,8 +39,11 @@ https://www.mediafire.com/view/t97oi3p2ai2sahw/Hawaii.png/file#
  
   https://hawaiiankingdom.org/us-occupation.shtml
   
+# PHOTOS LINKS
+https://www.businessinsider.com/21-gorgeous-photos-of-hawaii-before-it-became-a-state-2013-8?op=1
+https://docs.google.com/presentation/d/1CqlVe9OHyT7q0m4vcSVLp5_Zibsn49BIrTY4OhM7DQQ/edit#slide=id.g30d909f666b_0_0
 
-# HOME AND IMPORTANT INFORMATION
+# HOME PAGE AND IMPORTANT INFORMATION
 
 
 # What is Kaipo Times?
