@@ -46,7 +46,6 @@ https://docs.google.com/presentation/d/1CqlVe9OHyT7q0m4vcSVLp5_Zibsn49BIrTY4OhM7
 
 # HOME PAGE AND IMPORTANT INFORMATION
 
-
 # What is Kaipo Times?
 Kaipo times is a locally made website founded in 1997 to post informational papers about the state of Hawaii and current and past events that have happened there. Made by a young college student named Kalani Kaipo who attends University of Hawaii at West Oahu, this website aims to educate people of all ages on events in Hawaii locally and worldwide. Our free to use website is completely programmed by itself and is accessible to anyone with internet access. Kaipo times focuses on offering a non-biased perspective on hawaiian news and posts many different articles monthly to cover news in the hawaiian islands spaning from molakai,oahu,big island, maui, lihue, and other islands in the hawaiian archipelago. Kaipo times was named after it's creator Kalani Kaipo and is a non profit organization dedicated to spreading it's influence online to anyone who is interested in hawaiian news or history. 
 
@@ -57,4 +56,6 @@ This website was made to digitally showcase Kaipo time's official writing for a 
 @Kalanicabral550@gmail.com
 Phone Number: +1 (808) 636-6657
 
+# Respond to our poll so we can gather more information
+https://docs.google.com/forms/d/1M10XO4biuuNbtXrdSu8Zd3254IcbLfWjg9ycCEjb62A/edit
 
