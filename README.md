@@ -2,8 +2,9 @@
 # Understanding Why Tourism Is Used As An Excuse For The Invasion
 Published Wednesday April 15th, 1998. 
 Author: Kalani Kaipo
+![R](https://github.com/user-attachments/assets/5565aaf8-5891-4f94-98cd-bd0caf4e426b)
 
-![Hawaii](https://github.com/user-attachments/assets/6e4795ab-e593-426d-adc4-ad8194e305c9)
+
 
 # First of all, why is tourism such a big monopoly in Hawaii?
 Tourism was started around the late 1800's to early 1900's when hawaii attracted the wealthy to visit an exotic and tropical area that they had 
@@ -27,6 +28,7 @@ While tourism can be a great economic booster when used in moderation, hawaii ha
 
 # Download the free official flier
 https://www.mediafire.com/view/t97oi3p2ai2sahw/Hawaii.png/file# 
+![Hawaii](https://github.com/user-attachments/assets/b5dae39d-e277-488f-aeda-8de5685de194)
 
 # Sources
   https://en.wikipedia.org/wiki/Tourism_in_Hawaii
@@ -36,6 +38,7 @@ https://www.mediafire.com/view/t97oi3p2ai2sahw/Hawaii.png/file#
   https://www.nea.org/nea-today/all-news-articles/us-occupation-hawaiian-kingdom
  
   https://hawaiiankingdom.org/us-occupation.shtml
+  
 
 # HOME AND IMPORTANT INFORMATION
 
