@@ -1,5 +1,5 @@
 # Kaipo Times Vol. #1, 
-# Understanding Why Tourism Is Used As An Excuse For The Invasion
+# Understanding Why Tourism Hurts Hawaiian Residents
 Published Wednesday April 15th, 1998. 
 Author: Kalani Kaipo
 
@@ -22,7 +22,6 @@ Tourism has greatly strengthened the US's economy as many foreigners travel to t
 
 # Why don't we support tourism?
 While tourism can be a great economic booster when used in moderation, hawaii has swayed to the point where it's more focused on being a tourist spot rather than a place to live. Many businesses cater only to tourists in their products or services and less focus seems to be put on residents. If the system valued both residents and tourists equally. Currently our government only values the money it makes over the quality of life of it's local citizens and especialy it's native hawaiian populatuon that had been emancipated under the US's rule and put in a sort of slavery to it's government. 
-
 
 
 # MEDIA AND LINKS
