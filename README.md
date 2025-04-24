@@ -42,6 +42,7 @@ https://www.mediafire.com/view/t97oi3p2ai2sahw/Hawaii.png/file#
   
 # PHOTOS LINKS
 https://www.businessinsider.com/21-gorgeous-photos-of-hawaii-before-it-became-a-state-2013-8?op=1
+
 https://docs.google.com/presentation/d/1CqlVe9OHyT7q0m4vcSVLp5_Zibsn49BIrTY4OhM7DQQ/edit#slide=id.g30d909f666b_0_0
 
 # HOME PAGE AND IMPORTANT INFORMATION
@@ -54,6 +55,7 @@ This website was made to digitally showcase Kaipo time's official writing for a 
 
 # Where do we contact you?
 @Kalanicabral550@gmail.com
+
 Phone Number: +1 (808) 636-6657
 
 # Respond to our poll so we can gather more information
