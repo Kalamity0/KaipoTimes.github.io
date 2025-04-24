@@ -2,6 +2,7 @@
 # Understanding Why Tourism Is Used As An Excuse For The Invasion
 Published Wednesday April 15th, 1998. 
 Author: Kalani Kaipo
+
 ![R](https://github.com/user-attachments/assets/5565aaf8-5891-4f94-98cd-bd0caf4e426b)
 
 
